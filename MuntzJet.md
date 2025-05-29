@@ -2,6 +2,8 @@
 
 The **Muntz Jet** was the brainchild of Earl “Madman” Muntz — a flamboyant entrepreneur known for making and losing fortunes. The car was based on the **Kurtis Sport Car (KSC)**, designed by acclaimed race car engineer **Frank Kurtis**.
 
+this is just for testing
+
 ![image](https://github.com/user-attachments/assets/8f810699-75fa-4f83-bcf4-e64bf4682283)
 
 ---
