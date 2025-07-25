@@ -1,4 +1,4 @@
-# Toyota 2000 GT Answer to First Japanese Car
+# Toyota 2000 GT Answer to First Japanese Sport Car
 
 The car manufacturer **Toyota** is known for **robustness, reliability, innovation in engineering**, and **tough longevity** of their products. But how did it earn that reputation, begning of Toyota sport car flagship. 
 
