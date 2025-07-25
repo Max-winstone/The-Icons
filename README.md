@@ -10,6 +10,7 @@ The car manufacturer **Toyota** is known for **robustness, reliability, innovati
 Toyota was literally unable to establish its reputation in the Western market. Known for **cheap and economical cars**, Toyota stood in contrast to European and American car manufacturers who built their prominence around **luxury and sports-oriented cars**.
 
 <img width="753" height="450" alt="image" src="https://github.com/user-attachments/assets/94e4297b-e84a-4910-ace2-1391ea8599f4" />
+
 Courtesy of Hagerty: the 1958 Toyota Toyopet Crown
 
 
@@ -21,7 +22,7 @@ In the **post-WWII era**, Japan endured **economic devastation**, affecting ever
 
 Yet, the story of Toyota producing beautiful, innovative cars was not over—it was building toward a breakthrough.
 
-## Yamaha’s Ambition and the A550X Prototype
+## Toyota Ambition with Yamaha’s Paving the Project A550X 
 
 **Yamaha**, famous for motorcycles and musical instruments, had a dream: to make a **sports car**. However, business strategy diverted Yamaha toward developing **Kei cars**—a more economical focus. Under pressure from shared creditors, Yamaha was encouraged to collaborate with **Nissan** to minimize financial risk.
 
