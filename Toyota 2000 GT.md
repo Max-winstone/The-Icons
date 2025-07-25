@@ -80,7 +80,10 @@ The engine was paired with **triple Mikuni-Solex 40PHH carburetors**.
 - **Transmission**: 5-speed synchromesh manual  
 - **Differential**: Limited-slip  
 - **0–100 kph**: 10 seconds  
-- **Top Speed**: 214 kph  
+- **Top Speed**: 214 kph
+
+<img width="997" height="663" alt="Screenshot 2025-07-25 at 18 35 25" src="https://github.com/user-attachments/assets/7f198948-0f98-48bb-8fa3-b7f46e85afe9" />
+
 
 The car featured **independent suspension** with coil springs and hydraulics, connected by **wishbones and stabilizer bars**.
 
@@ -107,5 +110,15 @@ The torch bearing performance Toyota 2000GT making a  credibility by setting a s
 The Toyota 2000 GT was **Japan’s answer of retribution** to European and American dominance in sports cars. Competing with the likes of the **Jaguar E-Type** and **Corvette Stingray**, Toyota proved it could match and even surpass global legends.
 
 It wasn’t just a car—it was a declaration of **Japan’s automotive excellence**. And Toyota walked away with **awards, admiration, and a legacy** that endures today.
+
+
+## Reference
+https://www.hagerty.com/media/car-profiles/a-2-5m-sale-is-more-than-a-record-for-the-2000gt-its-toyotas-revenge/
+
+https://silodrome.com/1967-toyota-2000gt-2/
+
+https://global.yamaha-motor.com/stories/history/stories/0012.html
+
+https://www.ecurie.co.uk/blog/2022/2/22/1967-toyota-shelby-2000-gt
 
 ---
