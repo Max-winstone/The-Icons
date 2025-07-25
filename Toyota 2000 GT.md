@@ -100,6 +100,7 @@ One recent highlight: On **1st February 2023**, model **MF10-10050** was announc
 
 <img width="1875" height="746" alt="image" src="https://github.com/user-attachments/assets/9f4c5310-5ab7-4dd3-bcb7-5f4e957fa236" />
 
+The torch bearing performance Toyota 2000GT making a  credibility by setting a series of speed records. In 1966 at the newly-constructed Yatabe Circuit, a 3.5-mile oval with steep banking, an aluminum-bodied pre-production prototype 2000GT set thirteen separate FIA time and distance records over 72 hours. Impressively, the car performed this multi-day test at sustained speeds of 125 – 130 mph without mechanical fault.
 
 ## Conclusion: Japan’s Answer to the World
 
