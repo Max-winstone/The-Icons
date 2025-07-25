@@ -1,4 +1,4 @@
-# The Making of a Legend: Toyota 2000 GT and the Yamaha Alliance
+# Toyota 2000 GT Answer to First Japanese Car
 
 The car manufacturer **Toyota** is known for **robustness, reliability, innovation in engineering**, and **tough longevity** of their products. But how did it earn that reputation, begning of Toyota sport car flagship. 
 
@@ -57,7 +57,9 @@ The project revolved around one word: **“Meticulous.”**
 The car was designed by Toyota industrial designer **Satoru Nozaki**. Its sleek fastback form was reminiscent of **Zagato’s “double bubble”** design.
 
 <img width="482" height="303" alt="image" src="https://github.com/user-attachments/assets/37d9b11e-5ba2-48a2-9e73-63be4b1de16b" />
+
 Photo: Supercar Nostalgia by Gooding&Company
+
 
 To meet U.S. headlight height regulations, Nozaki reengineered the lights to become **pop-up units above the bumper**.
 
