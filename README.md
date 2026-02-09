@@ -6,23 +6,9 @@
 
 1. [Toyota 2000 GT Answer to First Japanese Sport Car](#toyota-2000-gt-answer-to-first-japanese-sport-car)
 
-2. [Evolution of Automotive Manufacturing From Assembly Lines to Additive Innovation](#evolution-of-automotive-manufacturing-from-assembly-lines-to-additive-innovation)
+2. [Evolution of Automotive Manufacturing: From Assembly Lines to Additive Innovation](#evolution-of-automotive-manufacturing:-from-assembly-lines-to-additive-innovation)
 
-3. [Japan’s Post-War Challenges](#japans-post-war-challenges)
 
-4. [Toyota Ambition with Yamaha: Project A550X](#toyota-ambition-with-yamahas-paving-the-project-a550x)
-
-5. [Collaborative Development Begins](#collaborative-development-begins)
-
-6. [Engineering the Halo Car](#engineering-the-halo-car)
-   6.1 [Design & Body](#design--body)
-   6.2 [Powertrain & Performance](#powertrain--performance)
-
-7. [Legacy of the Toyota 2000 GT](#legacy-of-the-toyota-2000-gt)
-
-8. [Conclusion: Japan’s Answer to the World](#conclusion-japans-answer-to-the-world)
-
-9. [References](#reference)
 
 ---
 
@@ -159,7 +145,7 @@ Just tell me the target use.
 
 
 
-# Evolution of Automotive Manufacturing From Assembly Lines to Additive Innovation
+# Evolution of Automotive Manufacturing: From Assembly Lines to Additive Innovation
 
 Manufacturing has long served as the cornerstone of the automotive industry. The modern spectacle of robotic arms seamlessly welding and assembling vehicles owes its origins to the pioneering vision of Henry Ford. His introduction of the moving assembly line not only transformed automobile production but also set a precedent for mass manufacturing across industries.
 
