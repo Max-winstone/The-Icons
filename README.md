@@ -6,7 +6,7 @@
 
 1. [Toyota 2000 GT Answer to First Japanese Sport Car](#toyota-2000-gt-answer-to-first-japanese-sport-car)
 
-2. [Evolution of Automotive Manufacturing: From Assembly Lines to Additive Innovation](#Evolution-of-Automotive-Manufacturing:-From-Assembly-Lines-to-Additive-Innovation)
+2. [Evolution of Automotive Manufacturing: From Assembly Lines to Additive Innovation](#evolution-of-automotive-manufacturing:-from-assembly-lines-to-additive-innovation)
 
 3. [Japan’s Post-War Challenges](#japans-post-war-challenges)
 
