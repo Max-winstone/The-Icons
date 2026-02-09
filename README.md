@@ -138,7 +138,7 @@ https://www.ecurie.co.uk/blog/2022/2/22/1967-toyota-shelby-2000-gt
 ---
 
 
-Just tell me the target use.
+
 
 
 
