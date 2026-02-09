@@ -1,4 +1,4 @@
-# **Toyota 2000 GT — Answer to First Japanese Sport Car**
+# **The Icons**
 
 ---
 
