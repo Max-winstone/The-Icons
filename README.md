@@ -10,6 +10,8 @@
 
 3. [Aston Martin Ultra Rare V8 Estate](#aston-martin-ultra-rare-v8-estate)
 
+4. [Bristol In-due Time The 410](#Bri-martin-ultra-rare-v8-estate)
+
 
 
 ---
@@ -199,4 +201,12 @@ In an era increasingly dominated by high-riding utility vehicles, the V8 Sportsm
 This particular example is a rare **left-hand-drive, automatic variant**, originally leaving the factory in July 1996. Since then, it has been meticulously maintained by the Aston Martin Works division, ensuring that this extraordinary piece of motoring history has been preserved in exceptional condition for over two decades.
 
 Inside, the cabin reflects a distinctly British sense of luxury. Supple green leather upholstery mirrors the classic **British Racing Green** exterior, creating a harmonious and timeless aesthetic. This is complemented by finely crafted walnut trim, lending the interior a warm, traditional character—an environment that is as refined as it is evocative of Aston Martin’s grand touring heritage.
+
+
+
+
+The 1960s is called the golden era for car designer to design a car exterior beyone the straight and curve lines, like a women in labour in a due-time. The famous hobour port town Filton, Bristol, was a promienance for Aerospace manufacturing. The Bristol car holds the court of arms of "Bristol". 
+
+<img width="1920" height="2880" alt="image" src="https://github.com/user-attachments/assets/2448ce9d-9470-4041-a13a-83e9028dc61a" />
+
 
