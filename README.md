@@ -207,7 +207,7 @@ ________________________________________________________________________________
 
 
 
-# Bristol Car The 410 in Labour for Iconic 411 Mode
+# Bristol Car The 410 in Pangs for Iconic 411 Mode
 
 The 1960s is called the golden era for car designer to design a car exterior beyone the straight and curve lines, like a women in labour in a due-time. The famous hobour port town Filton, Bristol, was a promienance for Aerospace manufacturing. The Bristol car holds the court of arms of "Bristol". 
 
