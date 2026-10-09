@@ -214,3 +214,36 @@ The 1960s is called the golden era for car designer to design a car exterior bey
 <img width="1920" height="2880" alt="image" src="https://github.com/user-attachments/assets/2448ce9d-9470-4041-a13a-83e9028dc61a" />
 
 
+<img width="740" height="396" alt="Screenshot 2026-10-09 at 9 57 10 AM" src="https://github.com/user-attachments/assets/89395e69-c617-452d-b2dd-73a6a28879ce" />
+
+
+The Bristol 411 was a hand-built British luxury sports saloon manufactured by Bristol Cars between 1969 and 1976. Combining discreet British styling, traditional craftsmanship and a powerful American V8 engine, it became one of the most distinctive high-performance luxury cars of its era.
+
+Only 287 examples were built, making it a rare alternative to more widely recognised British and European luxury cars. 
+
+The Bristol company built a series of car from 1969 to 1976 bring the performances. The faulty from series 1 are corrected of the suspension levelling. The engine are made bigger capacity from 410 having 5.2 litres to 6.3 litre Chrysler V8 engine. Resulting a speed of 230 Km/h. 
+
+<img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/adc56ac0-ea80-46ee-8762-55895f6cd193" />
+
+<img width="1200" height="900" alt="image" src="https://github.com/user-attachments/assets/2609a05d-fa48-45f3-b73a-4025726dd27d" />
+
+
+In Series 3 the designer Dudley Hobbs completely<img width="400" height="500" alt="Bristol 411 inte" src="https://github.com/user-attachments/assets/1f95eac3-bd11-4c05-b760-81358a65a7c1" />
+ changed the Bristol 411 body in 1972. He changed the front grille with wider front and four headlamps in a inline row. Series 4 upgrade to 6.6 litres from 6.3 litre engine, making it to remunerate the compression ratio. 
+
+<img width="2400" height="1172" alt="image" src="https://github.com/user-attachments/assets/1fc287d6-4e86-4cd8-ae8b-38574c27ba08" />
+
+
+The Bristol settle with Series 5 has their final original version with restored prestigious traditional badge. The badge explorer rich history of Bristol past heritage King William the Conqueror (1066-1087 AD) gave Bristol its indication of importance in the medieval times. The he built a motte and bailey castle which rivalled against the Tower of London. The ship in the badge represents important of trade port and Anglo-Saxons establishments. 
+
+<img width="2400" height="1600" alt="image" src="https://github.com/user-attachments/assets/8ff539e8-0d8a-4a22-98e1-a86bd0e5da47" />
+
+<img width="400" height="500" alt="Bristol 411 inte" src="https://github.com/user-attachments/assets/e3dfa284-f3ff-4887-ae4c-8041dfefb0ad" />
+
+
+
+Bristol 411 trace with great heritage and power house of Britian's airoplane manufacturing. Gave 
+
+
+Tatra87. (2024, May 9). Curbside classic: 1968 Bristol 410 – Not your ordinary hybrid. Curbside Classic. 
+https://www.curbsideclassic.com/curbside-classics-european/curbside-classic-1968-bristol-410-not-your-ordinary-hybrid/
