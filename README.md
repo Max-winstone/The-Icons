@@ -241,7 +241,9 @@ The Bristol company built a series of car from 1969 to 1976 bring the performanc
 
 The Bristol settle with Series 5 has their final original version with restored prestigious traditional badge. The badge explorer rich history of Bristol past heritage King William the Conqueror (1066-1087 AD) gave Bristol its indication of importance in the medieval times. The he built a motte and bailey castle which rivalled against the Tower of London. The ship in the badge represents important of trade port and Anglo-Saxons establishments. 
 
-<img width="2400" height="1600" alt="image" src="https://github.com/user-attachments/assets/8ff539e8-0d8a-4a22-98e1-a86bd0e5da47" />
+<img width="782" height="1283" alt="noname" src="https://github.com/user-attachments/assets/f7442d2d-0bf7-4b6e-9e25-35a2f7dca95d" />
+
+
 
 <img width="400" height="500" alt="Bristol 411 inte" src="https://github.com/user-attachments/assets/e3dfa284-f3ff-4887-ae4c-8041dfefb0ad" />
 
