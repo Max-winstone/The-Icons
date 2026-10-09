@@ -211,6 +211,9 @@ ________________________________________________________________________________
 
 The 1960s is called the golden era for car designer to design a car exterior beyone the straight and curve lines, like a women in labour in a due-time. The famous hobour port town Filton, Bristol, was a promienance for Aerospace manufacturing. The Bristol car holds the court of arms of "Bristol". 
 
+<img width="1200" height="801" alt="image" src="https://github.com/user-attachments/assets/7e1fed57-0d5d-4d6d-85b3-4a1fd45ab619" />
+
+
 <img width="1920" height="2880" alt="image" src="https://github.com/user-attachments/assets/2448ce9d-9470-4041-a13a-83e9028dc61a" />
 
 
@@ -244,8 +247,14 @@ The Bristol settle with Series 5 has their final original version with restored 
 
 
 
-Bristol 411 trace with great heritage and power house of Britian's airoplane manufacturing. Gave 
+Bristol 411 trace with great heritage and power house of Britian's airoplane manufacturing. Gave this elegant British styling car with outcomes final original Bristol 411 Series 5 answered its ancestor giving the flow design and with Series 4 resemble. 
+
+<img width="800" height="533" alt="image" src="https://github.com/user-attachments/assets/822bdae1-0f73-41e2-9ce6-48b1271ec256" />
+
+<img width="800" height="533" alt="image" src="https://github.com/user-attachments/assets/878fa93e-9d83-4f52-849c-de141daf44d9" />
 
 
 Tatra87. (2024, May 9). Curbside classic: 1968 Bristol 410 – Not your ordinary hybrid. Curbside Classic. 
 https://www.curbsideclassic.com/curbside-classics-european/curbside-classic-1968-bristol-410-not-your-ordinary-hybrid/
+
+Editors. (n.d.). Exceptionally well thought out Bristol 411 Series 1 excels in refinement. Auto Motor Klassiek. https://en.amklassiek.nl/exceptionally-well-thought-out-bristol-411-series-1-excels-in-refinement/2025/07/03/.
